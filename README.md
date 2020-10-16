@@ -39,7 +39,7 @@
 
 ##### See Training 
 
-- 🔞 See Training 🎥 https://youtu.be/OcLLTlrSZYM  🎥
+- 🔞 See Training 🎥 https://www.youtube.com/watch?v=Kg0cSsgJsBI&feature=youtu.be&ab_channel=M4nifest0BlackHatHackingTeam  🎥
 
 
 ----------------------
