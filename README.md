@@ -1,4 +1,4 @@
-# # ![Locations](https://github.com/M4nifest0/M4nifest0_WhatsApp/blob/master/s.png) 
+# ![Locations](https://github.com/M4nifest0/M4nifest0_WhatsApp/blob/master/s.png) 
 # M4nifest0_Truns
 # M4nifest0_Truns: Track unfollows, Increase your followers, Download Stories and...
 
