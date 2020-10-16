@@ -5,7 +5,7 @@
 ##### What information do we get
 ----------------------
 - 📌 Follow automatically
-- 📌 Autoflow automatically
+- 📌 Auto Follow  automatically
 - 📌 Save all information
 - 📌 Save the information of each user
 - 📌 Follow user information
